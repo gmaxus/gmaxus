@@ -8,4 +8,4 @@
 - [Boosty](https://boosty.to/bmaxus/donate)
 - [Patreon](https://patreon.com/pmaxus)
 
-You can reach me via my telegram: [@tmaxus](https://t.me/ymaxus) or email: [gmaxus@gmail.com](mailto:gmaxus@gmail.com)
+You can reach me via [my telegram](https://t.me/tmaxus) or [email](mailto:gmaxus@gmail.com)
